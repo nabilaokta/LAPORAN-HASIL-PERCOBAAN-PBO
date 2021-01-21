@@ -1,0 +1,1 @@
+Luas_segitiga
